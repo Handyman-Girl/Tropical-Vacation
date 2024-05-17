@@ -1,0 +1,1 @@
+VR Headset virtual vacation on a tropical with beautiful blue ocean, pink sand, water activities, beach activities, a 5 star hotel with ever amenity you can image, awesome restaurants,and wonderful visual surrounding. You are on this virtual vacation with a few friends and it seems so real that this VR vacation is accessable every single day. 
